@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on discord.
 - 📫 How to reach me anay.dewanji@gmail.com
 - 😄 Pronouns: he, him, smartipants(friend calls me)
-- ⚡ Fun fact: Is friendly to whoever is friendly to him.
 
 <!---
 anaydewanji/anaydewanji is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
