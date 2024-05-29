@@ -2,7 +2,7 @@
 - 👀 I’m interested in animation, music, art, coding.
 - 🌱 I’m currently learning python.
 - 💞️ I’m looking to collaborate on discord.
-- 📫 How to reach me anay.dewanji@gmail.com
+- 📫 How to reach me anay.dewanji@yahoo.com
 - 😄 Pronouns: he, him, smartipants(friend calls me)
 
 <!---
